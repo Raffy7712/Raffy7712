@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔚||  I'm a Backend Developer<br>
+🔚||  I'm a Junior Developer<br>
 
 
 ## 🌐 Socials:
